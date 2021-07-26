@@ -10,4 +10,4 @@ Contact me:
 *LinkedIn* -> https://www.linkedin.com/in/keshavdevkapil/
 
 
-*Twitter* -> https://twitter.com/kapilkeshav__
+*Twitter* -> kapilkeshav__
